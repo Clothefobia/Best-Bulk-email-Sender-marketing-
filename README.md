@@ -1,7 +1,7 @@
 # Best-Bulk-email-Sender-marketing-
 We offer best Bulk email sender software that will work on any SMTP email service, you can send daily 10000+ email from our software..its easy to use software.
 
-Check software below link
+Check software below link for buy premium software 
 https://codecanyon.net/item/bulk-email-marketing-software/27734969
 
 <h4>What is BULK EMAIL Sender Software ?</h4>
